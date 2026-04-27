@@ -80,4 +80,3 @@
 <a href="https://timewaster.tech/2718-2/" rel="nofollow">.</a>
 <a href="https://timewaster.me/2702-2/" rel="nofollow">.</a>
 <a href="https://t.me/s/Cringe_SEOx1" rel="nofollow">.</a>
-<img width="557" height="1572" alt="image" src="https://github.com/user-attachments/assets/30330a7a-ac46-428c-a502-5ff93d6b5ac4" />
